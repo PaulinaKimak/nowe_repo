@@ -1,1 +1,1 @@
-# nowe_repo
+Paulina Kimak
